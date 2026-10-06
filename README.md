@@ -179,7 +179,8 @@ This project can be improved by:
 
 ## connect with me :
 
-linkedin Id : www.linkedin.com/in/nisha-sonkusre-283526415 :
+linkedin Id : www.linkedin.com/in/nisha-sonkusre-283526415 
+
 G-mail Id : nishasonkusre@gmail.com
 
 
